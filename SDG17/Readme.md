@@ -1,0 +1,6 @@
+# Goal 17: Revitalize the global partnership for sustainable development
+From https://www.un.org/sustainabledevelopment/globalpartnerships/
+
+> A successful sustainable development agenda requires partnerships between governments, the private sector and civil society. These inclusive partnerships built upon principles and values, a shared vision, and shared goals that place people and the planet at the centre, are needed at the global, regional, national and local level.
+
+> Urgent action is needed to mobilize, redirect and unlock the transformative power of trillions of dollars of private resources to deliver on sustainable development objectives. Long-term investments, including foreign direct investment, are needed in critical sectors, especially in developing countries. These include sustainable energy, infrastructure and transport, as well as information and communications technologies. The public sector will need to set a clear direction. Review and monitoring frameworks, regulations and incentive structures that enable such investments must be retooled to attract investments and reinforce sustainable development. National oversight mechanisms such as supreme audit institutions and oversight functions by legislatures should be strengthened.
