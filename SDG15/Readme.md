@@ -1,0 +1,12 @@
+# Goal 15: Sustainably manage forests, combat desertification, halt and reverse land degradation, halt biodiversity loss
+
+From https://www.un.org/sustainabledevelopment/biodiversity/
+
+> Forests cover 30.7 per cent of the Earth’s surface and, in addition to providing food security and shelter, they are key to combating climate change, protecting biodiversity and the homes of the indigenous population. By protecting forests, we will also be able to strengthen natural resource management and increase land productivity.
+
+> At the current time, thirteen million hectares of forests are being lost every year while the persistent degradation of drylands has led to the desertification of 3.6 billion hectares. Even though up to 15% of land is currently under protection, biodiversity is still at risk. Deforestation and desertification – caused by human activities and climate change – pose major challenges to sustainable development and have affected the lives and livelihoods of millions of people in the fight against poverty.
+
+> Efforts are being made to manage forests and combat desertification. There are two international agreements being implemented currently that promote the use of resources in an equitable way. Financial investments in support of biodiversity are also being provided.
+
+>The Lion’s Share Fund
+>On 21 June, 2018, the United Nations Development Programme (UNDP), FINCH and founding partner Mars, Incorporated, announced the Lion’s Share, an initiative aimed at transforming the lives of animals across the world by asking advertisers to contribute a percentage of their media spend to conservation and animal welfare projects.  The Lion’s Share will see partners contribute 0.5 percent of their media spend to the fund for each advertisement they use featuring an animal. Those funds will be used to support animals and their habitats around the world. The Fund is seeking to raise US$100m a year within three years, with the money being invested in a range of wildlife conservation and animal welfare programs to be implemented by United Nations and civil society organizations.
