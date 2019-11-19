@@ -1,4 +1,4 @@
-# Ensure access to affordable, reliable, sustainable and modern energy
+# Goal 7: Ensure access to affordable, reliable, sustainable and modern energy
 From https://www.un.org/sustainabledevelopment/energy/
 > Energy is central to nearly every major challenge and opportunity the world faces today. Be it for jobs, security, climate change, food production or increasing incomes, access to energy for all is essential. Working towards this goal is especially important as it interlinks with other Sustainable Development Goals. Focusing on universal access to energy, increased energy efficiency and the increased use of renewable energy through new economic and job opportunities is crucial to creating more sustainable and inclusive communities and resilience to environmental issues like climate change.
 
